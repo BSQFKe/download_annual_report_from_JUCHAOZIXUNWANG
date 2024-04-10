@@ -4,7 +4,7 @@
 
 白水青风客
 
-bsqfke@gmail.com
+1062349062@qq.com
 
 # 2.环境搭建
 
